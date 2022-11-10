@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on my Master Thesis in **Plan Merging**
 
-- 📫 How to reach me **aureliensimon.contact@gmail.com**
+- 📫 How to reach me prout
 
 - 📄 Know about my experiences [here](www.linkedin.com/in/aurélien-simon)
 
